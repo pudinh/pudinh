@@ -4,7 +4,7 @@
 
 <br><br>
 
-<a href="https://pud1nhlover.atabook.org">ata</a> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <a href="https://pudinh0o.straw.page">straw</a>
+<a href="https://pud1nhlover.atabook.org">𝛂ta</a> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ︵ <a href="https://pudinh0o.straw.page">𝓼traw</a>
 
 </div>
 
