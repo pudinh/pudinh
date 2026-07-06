@@ -1,12 +1,12 @@
 <center>
 
-![Uploading ccrowe soll yayy.png…]()
 
-
-</center>
+<img width="1800" height="600" alt="tkab header" src="https://github.com/user-attachments/assets/953d0787-fd9f-4877-850b-1b492b77a44e" />
 
 
 [ata](https://pud1nhlover.atabook.org)   [straw](https://pudinh0o.straw.page)
+
+</center>
 
 <!--
 **pudinh/pudinh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
