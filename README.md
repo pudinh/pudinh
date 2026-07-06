@@ -1,4 +1,4 @@
-[my ata <3](https://pud1nhlover.atabook.org)
+  [my ata <3](https://pud1nhlover.atabook.org) [straw <3](https://pudinh0o.straw.page)
 <!--
 **pudinh/pudinh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
