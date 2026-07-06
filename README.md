@@ -1,12 +1,12 @@
-<center>
-
+<div align="center">
 
 <img width="1800" height="600" alt="tkab header" src="https://github.com/user-attachments/assets/953d0787-fd9f-4877-850b-1b492b77a44e" />
 
+<br><br>
 
-[ata](https://pud1nhlover.atabook.org)   [straw](https://pudinh0o.straw.page)
+<a href="https://atabook.org">ata</a> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <a href="https://straw.page">straw</a>
 
-</center>
+</div>
 
 <!--
 **pudinh/pudinh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
