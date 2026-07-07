@@ -8,7 +8,7 @@
 
 mela &nbsp;or&nbsp; el &nbsp;&nbsp;&nbsp;&nbsp; she &nbsp;/&nbsp; her &nbsp;&nbsp;&nbsp;&nbsp; ✦ &nbsp;&nbsp;&nbsp;&nbsp; solitary
 
-─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
+─── ♡ .✦ ݁˖ ⋆˚࿔ ૮₍ ˃ ⤙ ˂ ₎ა ✶ 𓏵‧₊˚ ┊ 𓍼───
 
 <a href="https://pud1nhlover.atabook.org">𝛂ta</a>book ︵ <a href="https://pudinh0o.straw.page">𝓼traw</a>page
 
