@@ -1,7 +1,7 @@
+
 <div align="center">
 
-<img width="1800" height="600" alt="tkab header" src="https://github.com/user-attachments/assets/953d0787-fd9f-4877-850b-1b492b77a44e" />
->ᴗ<
+<img width="2640" height="1650" alt="crowieie" src="https://github.com/user-attachments/assets/b0a88717-3c36-4105-90c6-086f5e5addef" />
 
 <br><br>
 
