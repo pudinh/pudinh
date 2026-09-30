@@ -2,7 +2,7 @@
 
 <div align="center">
 
-<img width="2640" height="1650" alt="crowee" src="https://github.com/user-attachments/assets/866d81fd-e030-407c-b286-9d6ded0f88d3" />
+
 
 <br><br>
 
@@ -10,7 +10,7 @@ mela &nbsp;or&nbsp; el &nbsp;&nbsp;&nbsp;&nbsp; she &nbsp;/&nbsp; her &nbsp;&nbs
 
 ─── ♡ .✦ ݁˖ ⋆˚࿔ ૮₍ ˃ ⤙ ˂ ₎ა ✶ 𓏵‧₊˚ ┊ 𓍼───
 
-<a href="https://pud1nhlover.atabook.org">𝛂ta</a>book ︵ <a href="https://pudinh0o.straw.page">𝓼traw</a>page
+
 
 </div>
 
